@@ -1,1 +1,0 @@
-# advthankachan.github.io
